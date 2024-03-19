@@ -6,7 +6,7 @@ Because its all about logic, design & learn!!
 
 Always eager to contribute to exciting software projects and collaborate with like-minded individuals to create innovative solutions. 
 
-You'll often find TechLogica tinkering away on various projects, which is also feature on its YouTube channel. 
+You'll often find TechLogica tinkering away on various projects, which is also featured on its YouTube channel. 
 
 Join this journey as we explore the endless possibilities of technology together!
 
